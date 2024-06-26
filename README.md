@@ -6,5 +6,5 @@
       4. Azizul Bin Azman (Group Member)
       5. M Zaenal Iskandar Sahidin (Group Member)
       6. Nur Maisarah Binti Nor Azharludin (Group Member)
-      7. Nurani Syahidah (Group Member
+      7. Nurani Syahidah (Group Member)
       
